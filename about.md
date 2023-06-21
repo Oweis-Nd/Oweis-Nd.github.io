@@ -11,7 +11,7 @@ I am a professional electrician. But as the digital world is increasing in tech,
 
 ## How
 
-Having this tech skills will prepare you for the future. And not only that, but also lang you to a well paying jobs.
+Having this tech skills will prepare you for the future. And not only that, but also land you to a well paying jobs.
 
 ### What
 
